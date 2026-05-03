@@ -12,3 +12,5 @@ Erfrischt und gestärkt machte sich Markus auf den Weg, um die letzte Etappe sei
 
 Markus ging tiefer in den Dungeon hinein und bemerkte ein schwaches Licht am Ende des Ganges.
 
+Plötzlich fand Markus eine alte Kiste und nahm eine kleine Fackel daraus mit.
+
